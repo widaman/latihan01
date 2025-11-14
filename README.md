@@ -1,2 +1,16 @@
 # latihan01
+
 test one latihan bigdata
+
+
+
+\## DAMON FERERO DWIPUTRA SETIAWAN 
+
+
+
+021002301013
+
+
+
+PRAKTIKUM ANALISA BIG DATA EKONOMIKA 
+
